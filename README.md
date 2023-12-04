@@ -2,4 +2,4 @@
 
 🤓 i am appleapplegaming
 
-😎 i am currently studying havo 5
+😎 i am currently not doing anything with my life
